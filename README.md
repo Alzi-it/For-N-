@@ -1,1 +1,1 @@
-# For-N-
+untuk orang terspesial di hidup ku 
